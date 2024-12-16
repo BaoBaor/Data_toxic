@@ -1,2 +1,2 @@
 Những file khác được sử dụng trong project:
-https://drive.google.com/drive/folders/1nWNA8EXIfA6qN1m9gToaZV0GwgJXvYfC?usp=drive_link
+https://drive.google.com/drive/folders/1qG_AZdIUVHO-gxKsK4W23z--4rlxIdWz?usp=drive_link
